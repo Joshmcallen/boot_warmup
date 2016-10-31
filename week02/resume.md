@@ -3,8 +3,8 @@ Joshmcallen@my.codergv.org
 
 #### Work Experience <h4>
 
-#Subway
-#Double Dave's Pizzaworks
+1. Subway
+2. Double Dave's Pizzaworks
 
 
 #### Education <h4>
